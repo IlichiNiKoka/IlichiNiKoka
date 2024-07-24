@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @IlichiNiKoka or 林韵如, a Central South University students who studys Datascience
+- 👀 I’m interested in Machine Learning/Kigurumi Cosplay/Drums/Gaming
+- 🌱 I’m currently learning Java 101/Data Science 101(you can't expect more from a second-year university student RIGHT ?)
+- 💞️ I’m trying to make myself good enough to collab with someone
+- 📫 How to reach me: SFW X account: saveurselv NSFW X account: EXCUSE ME ARE WE THIS FIMILIAR ?
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: this guy wanted to try crossdressing Kigurumi cosplay but have no money to do so,我不可爱，但请给我钱
+
+<!---
+IlichiNiKoka/IlichiNiKoka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
