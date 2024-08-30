@@ -4,7 +4,7 @@
 - 💞️ I’m trying to make myself good enough to collab with someone
 - 📫 How to reach me: SFW X account: IlichiNiKoka NSFW X account: EXCUSE ME ARE WE THIS FIMILIAR ?
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: this guy wanted to try crossdressing Kigurumi cosplay but have no money to do so,我不可爱，但请给我钱
+- ⚡ Fun fact: this guy wanted to try crossdressing Kigurumi cosplay but have no money to do so(?)
 
 <!---
 IlichiNiKoka/IlichiNiKoka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
