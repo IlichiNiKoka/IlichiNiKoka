@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @IlichiNiKoka, a Central South University students who studys Datascience
-- 👀 Machine Learning/Kigurumi Cosplay/Drums/Gaming/VR Chat
-- 🌱 DataBase 101
+- 👋 Hi, I’m @IlichiNiKoka, Central South University Data Science student
+- 👀 Machine Learning
+- 🌱 Not yet in industry
 - 💞️ in a relationship
-- 📫 X: IlichiNiKoka, 
+- 📫 X: IlichiNiKoka,
 - 😄 he/him
 - ⚡ Fun fact: No
 
